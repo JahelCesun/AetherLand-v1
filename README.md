@@ -1,0 +1,1 @@
+El termino y condiciones indica que los datos proporcionados de los usarios serán utilizados para la publicidad mostrada y solamente los siguientes datos: intereses, juegos jugados, tags, lista de deseos, páginas vista
